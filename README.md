@@ -1,2 +1,0 @@
-# GHOROYA-BAZAR
-No 
